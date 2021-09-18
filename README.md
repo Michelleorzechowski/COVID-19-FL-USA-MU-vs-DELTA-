@@ -1,1 +1,0 @@
-# COVID-19-FL-USA-MU-vs-DELTA-
